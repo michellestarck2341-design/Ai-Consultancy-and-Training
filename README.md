@@ -66,7 +66,7 @@ Learning from the right platform can make a significant difference in career gro
 
 Structured learning helps individuals understand not only the skills but also how to apply them in real-world scenarios.
 
-One such platform is [coworkacademy.com](https://coworkacademy.com/), which provides valuable insights and practical knowledge for individuals who want to succeed in freelancing and digital careers.
+One such platform is [The Cowork Academy](https://coworkacademy.com/), which provides valuable insights and practical knowledge for individuals who want to succeed in freelancing and digital careers.
 
 ## Challenges in the Digital Journey
 
